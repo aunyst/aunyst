@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @aunyst
 - 👀 I’m interested in ... growing however I can and to become a helpful part of the IT community
-- 🌱 I’m currently learning ... beginne basics
+- 🌱 I’m currently learning ... beginner basics
 - 💞️ I’m looking to collaborate on ... anything
-- 📫 How to reach me ... at marykatshipp@gmail.com
+- 📫 How to reach me ... at marykatshipp@gmail.com or mship46@wgu.edu
 - 😄 Pronouns: she / her
 - ⚡ Fun fact: ... I have a pet snake
 
